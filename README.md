@@ -1,5 +1,5 @@
 # 💫 About Me:
-Natalie Yakunina
+Natalie Marten
 
 
 ## 🌐 Socials:
